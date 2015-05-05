@@ -1,0 +1,2 @@
+# bismillah
+bisinkaan ku bilaabay
